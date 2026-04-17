@@ -1,4 +1,5 @@
-## Hi there 👋
+Guitarist and horror fanatic.
+<img width="498" height="281" alt="world-of-horror-hands" src="https://github.com/user-attachments/assets/6ab59b39-f92e-4220-852c-ffc6c85a3b2b" />
 
 <!--
 **Im33n/Im33n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
