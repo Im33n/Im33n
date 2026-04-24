@@ -1,5 +1,5 @@
 <div align="center">
-╶" ^_^//ㅤGuitarist and horror fanatic.ㅤ🕷
+╶" ⚠︎ //ㅤGuitarist and horror fanatic.ㅤ🕷
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
